@@ -2,7 +2,7 @@ Hi my name is Otabek- 👋
 - 👀 I’m interested in Java 
 - 🌱 I’m currently learning java .
 - 💞️ I’m looking to collaborate on .
-- 📫 How to reach me my phonenumber 998940360611
+- 📫 How to reach me my phonenumber 998948370003
 - 😄 Pronouns: ...
 - ⚡ My Fun fact: ...I 'm from UZbekistan.
 
